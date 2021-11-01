@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tgbobbi63
 - 👀 I’m interested in ... this unfolding reality.
-- 🌱 I’m currently learning ... Spanish, U/I oeprations
+- 🌱 I’m currently learning ... Spanish, U/I operations
 - 💞️ I’m looking to collaborate on ... the best crypto wallet.
 - 📫 How to reach me ... via this account.
 
